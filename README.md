@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Harpervalentine aka London Creative
+- 👀 I’m interested in Art, YouTube, Writing, just an all round creative
+- 🌱 I’m currently learning to craft models, make better Flow Art & Grow my YouTube Channel
+- 💞️ I’m looking to collaborate on YouTube Videos, in London UK - I have a film I want to shoot which I'll need help on.
+- 📚 I've written 7 books - a Contemparary Novel, a Kinky Space Opera & a 5 book Fantasy/Sci-Fi Crossover, looking to this published
+- 📫 How to reach me https://linktr.ee/LondonCreative
